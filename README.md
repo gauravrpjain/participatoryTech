@@ -1,1 +1,1 @@
-# rebalancing-power-in-tech
+# Participatory Tech
